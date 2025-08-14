@@ -6,6 +6,7 @@
 
 - 1 cup sugar
 - 1 cup water
+- A pinch of salt
 
 ## How to Make
 
